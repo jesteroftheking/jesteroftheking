@@ -2,7 +2,7 @@
 
 I’m @jesteroftheking, engineer in digital performance and reliability,
 
-I really hope that my questions/answers/comments fits your needs.
+I really hope that my contributions fits your needs.
 
 Regards
 
